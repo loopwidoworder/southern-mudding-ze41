@@ -1,4 +1,4 @@
-#  
+#  Experience oil empire like never before with advanced oil empire Script, the #1 Script. Includes unlimited stamina and invisibility for unbeatable
 
 
 
